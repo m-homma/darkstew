@@ -31,3 +31,7 @@
 ## 食べたくないもの
 - がぶ
   - しおから
+
+## 参考リンク
+闇鍋普及委員会
+http://blackpot.blog11.fc2.com/blog-category-1.html
